@@ -1,1 +1,1 @@
-IT student, gameing
+IT student
